@@ -15,6 +15,9 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 I'm currently learning how to cloud
+
 __I'm very new to this but excited to learn__
+
 💃 I love dancing and music 
+
 👩‍👧‍👧 My family currently looks like this but I'm hoping in the new year we will look like this 👩‍👩‍👧‍👧
